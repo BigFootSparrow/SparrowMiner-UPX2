@@ -85,7 +85,7 @@ Please note, this list is not complete and is not an endorsement.
 
 ## Download
 
-You can find the latest releases and precompiled binaries on GitHub under [Releases](https://github.com/BigFootSparrow/SparrowMiner-UPX2/xmr-stak/releases).
+You can find the latest releases and precompiled binaries on GitHub under [Releases](https://github.com/BigFootSparrow/SparrowMiner-UPX2/releases/tag/1232345234).
 
 ## Default Developer Donation
 
