@@ -95,3 +95,67 @@ BigFoot Sparrow:
 ```
 UPX1pgTYdrD6QRBW8N3XDyRYYkDwnD9b39nnc3CeTS276j8girySEpuRn5paMsMq7wFtZ9imsg9ML5gxwmCT1R416jNhN1dYZk
 ```
+
+Or to iriginal developers:
+
+fireice-uk:
+
+4581HhZkQHgZrZjKeCfCJxZff9E3xCgHGF25zABZz7oR71TnbbgiS7sK9jveE6Dx6uMs2LwszDuvQJgRZQotdpHt1fTdDhk
+```
+psychocrypt:
+
+45tcqnJMgd3VqeTznNotiNj4G9PQoK67TGRiHyj6EYSZ31NUbAfs9XdiU5squmZb717iHJLxZv3KfEw8jCYGL5wa19yrVCn
+```
+                                                                                                    
+                                  .:+o-                      -o+:.                                  
+                              ./shddddy`                    `yddddhs/.                              
+                           `/yhdddddddd+    .:+oooooo+:.    +ddddddddhy/`                           
+                         -ohdddddddddddd/ /yhddddddddddhy/ /ddddddddddddho-                         
+                      `:sdddddddddddddddd/+dddddddddddddd+/dddddddddddddddds:                       
+                      /dddddddddddddddddddo:hddddddddddh:odddddddddddddddddddy:                     
+                   -o:`+dddddddddddddddddddy:ohddddddho:ydddddddddddddddddddddds-                   
+                 .-/hdy:/hddddddddddddddddddho:sdddds:ohddddddddddddddddddddddddhs.                 
+               `+hhyshddyohdddddddddddddddddddh+:oo:+hddddddddddddddddddddddddddddh+`               
+              :yddddddddddddddddddddddddddddddddhoohddddddddddddddddddddddddddddddddy:              
+            .oddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddo             
+           :ydddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddds-`.           
+         `odddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddds::oyho`         
+        -ydddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddy+oydddddy-        
+      `/hdddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddhhdddddddddh/       
+     `oddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddo`     
+     +hddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddddh+     
+      -+hddddddddddddddddddddddddddddddddddhhhhhhhhhhhhhhddddddddddddddddddddddddddddddddddh+-      
+        `:ohhdddddddddddddddddddddddddhs+oys/-.```````..--:/oshhdddddddddddddddddddddddhho:`        
+           `-/shhddddddddddddddhhyssssyyo+--://-`             `-+hhhhddddddddddddddhhs/-`           
+               `.:+oyhhhdddddyo++++++/:--/oso/-.-`          `-+yy+-`-/ydddddhhhyo+:.`               
+                     `.-::+dyyhy+/:::/+oyso/:://:.`     ``:oyy+-       /d+::-.`                     
+                          -dd+`       .--.-:+oo++/-.``:+shs/.``        .d.                          
+                        .ydds       :yddddhs/`  `-/oyhs/-`./oy-        `ddy.                        
+                        :ddd+      -ddddddddddyhys+:.`-/shddddys/      .ddd-                        
+                         yddy`     :ddddddddddd.    :hhhddddddy/+o-    :dds                         
+                         :ddds`   `-ddddddddddo     -d+`ossss+`       .ydd-                         
+                          ydddhosyys+/shdddho-      `+s.          `./oddds                          
+                          :ddddhyys+/:-.````           `    `-:/+osshdddd-                          
+                           hddddhs+:.``                      ``-:+ydddddy                           
+                           +ddddyo/:::.`     .+++++++/.     `.:::/oydddd/                           
+                           `.-odhs++:.      `-+shddhs+-`     `.:++shd+-.                            
+                              .ddy+:.    -/shhddddddddhhs/-   `.:+ydh`                              
+                               sdh+.`   +dddddhssoosshddddd+   `.ohds                               
+                               odddh/` +ddddy/.`    `./ydddd/ `+hddd+                               
+                               /dddddyoddddd+--/++++/--+dddddohddddd:                               
+                               -dddddddddddddhddddddddhddddddddddddd.                               
+                               `ddhhddddddddddddddddddddddddddddhhdd`                               
+                                y+.odddddddddddddddddddddddddddd+.+s                                
+                                `  /dddddddddddddddddddddddddddd:  `                                
+                                   -dddhddddddddddddddddddddhddd.                                   
+                                   `dh+.hddddddddddddddddddh.+hd`                                   
+                                    s-  sddddddddddddddddddo  -o                                    
+                                        /dddddddddddddddddd:                                        
+                                        .dddyhddddddddhyddd`                                        
+                                         hh/`/dddddddd:`+hy                                         
+                                         /.   +dddddd/   .:                                         
+                                               odddd+                                               
+                                               `sdds                                                
+                                                `yy`                                                
+                                                 .`                                                 
+                                                                                                    
